@@ -1,0 +1,3 @@
+# Resources Bank for "Swordigo+"
+## nothing here, go Away!
+### ...
